@@ -1,1 +1,0 @@
-# batdelgerariungerel-github.io
